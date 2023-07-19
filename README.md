@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**I'm WILSAN and welcome to my profile. Hope to spend some time with you** 
+**I'm WILSAN and welcome to my profile. Hope to spend some time with you.** 
 
 Here are some ideas to get you started:
 
