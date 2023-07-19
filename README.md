@@ -1,7 +1,7 @@
-### Hi there 👋
+### Hi there, I'm WILSAN 👋
 
 
-**I'm WILSAN and welcome to my profile. Hope to spend some time with you.** 
+**Welcome to my profile. I'm a Full-Stack Developer and am open to job opportunities. Hope to spend some time with you.** 
 
 Here are some ideas to get you started:
 
